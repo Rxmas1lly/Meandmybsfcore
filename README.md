@@ -6,4 +6,10 @@
 <img width="1640" height="2360" alt="IMG_0874" src="https://github.com/user-attachments/assets/aa72fb56-1c9c-488c-a901-a6c9da5977ff" />
 
 
+<img width="1640" height="2360" alt="IMG_0877" src="https://github.com/user-attachments/assets/458a6e6b-faca-4020-b604-a2e17c4c8395" />
+
+
+
+<img width="1640" height="2360" alt="IMG_0878" src="https://github.com/user-attachments/assets/0a952977-dbb3-4f96-bdd3-a5fece07740e" />
+
 # Meandmybsfcore
