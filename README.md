@@ -33,4 +33,8 @@
 
 ![IMG_0886](https://github.com/user-attachments/assets/61b9a8dd-6281-41ff-98f8-10e01f859418)
 
+
+
+<img width="1640" height="2360" alt="IMG_0935" src="https://github.com/user-attachments/assets/bc9e20b6-cf0a-4ce5-8ae5-9464f922fa44" />
+
 # Meandmybsfcore
