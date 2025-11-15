@@ -20,11 +20,15 @@
 
 
 ![IMG_0879](https://github.com/user-attachments/assets/bdef27be-25b6-40a4-a2bf-953f89b80ea5)
-
 ![Uploading IMG_0881.jpeg…]()
 
 
-![Uploading IMG_0885.jpeg…]()
 
+![IMG_0885](https://github.com/user-attachments/assets/50e59167-b61e-42fc-8adf-c334c1ee5ad8)
+
+
+
+
+![IMG_0886](https://github.com/user-attachments/assets/61b9a8dd-6281-41ff-98f8-10e01f859418)
 
 # Meandmybsfcore
